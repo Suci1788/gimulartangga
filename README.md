@@ -1,0 +1,2 @@
+# gimulartangga
+gim edukasi
